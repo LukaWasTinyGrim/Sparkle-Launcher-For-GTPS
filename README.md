@@ -1,4 +1,4 @@
-### [Download Latest Version 🛠️](https://github.com/LukaWasTinyGrim/Sparkle-Launcher-For-GTPS/raw/main/Sparkle%20Launcher.exe) [My Social Media's 🌐](https://www.ayo.so/sparkle)
+### [My Social Media's 🌐](https://www.ayo.so/sparkle) [Download Latest Version 🛠️](https://github.com/LukaWasTinyGrim/Sparkle-Launcher-For-GTPS/raw/main/Sparkle%20Launcher.exe)
 
 ### Sparkle Launcher For GTPS
 
